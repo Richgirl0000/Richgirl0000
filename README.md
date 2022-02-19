@@ -18,5 +18,8 @@ Estudiante de la PFLC No. 1, con gusto de darme a conocer:
 Algunos de mis pasatimpos:
    
    🦥 Dormir
-    
--->
+     🚕 Salir mucho
+       🎞 Ver pelis
+         ✔ Tardar en responder mensajes
+           🏀 Jugar baskettt
+--> 
