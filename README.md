@@ -11,7 +11,7 @@ Mi nombre es Sofia...
 Estudiante de la PFLC No. 1, con gusto de darme a conocer:
 
 - 🏢 Curso el 4to semestre de la prepa.
-- 🖋 Acabo de espezar mis clases presenciales.
+- 🖋 Acabo de empezar mis clases presenciales.
 - 🏈 Actualmente practico flag dentro del equipo de la escuela.
 - 🎧 Suelo escuchar música todo el tiempo.
 
